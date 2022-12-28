@@ -2,4 +2,5 @@
 All spoofers and/or owners that scam will be stated here. Be careful who you do your business with!
 
 
-# Who ever is in this list either scams or sells free unban dll.
+# Reason we do this:
+We do this to protect yall from buying free shit
